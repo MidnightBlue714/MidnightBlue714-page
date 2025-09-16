@@ -1,3 +1,3 @@
-# NextGen4JESUS-page
-NextGen4JESUS Official Page
-Welcome to NextGen4Jesus official page!
+# MidnightBlue714S-page
+MidnightBlue714 Official Page
+Welcome to my 3AM thoughts official page!
