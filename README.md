@@ -1,3 +1,3 @@
-# MidnightBlue714-page
-MidnightBlue714 Official Page
-Welcome to my 3AM thoughts!!!!
+
+REAL EYES REALIZE REAL LIES!!!
+-walking the fine line between who i was and who i am becoming-
